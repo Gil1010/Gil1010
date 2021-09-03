@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Gil1010
 - 👀 I’m interested in Art, Cosplay, Character Creation, Video Games, and Music!
 - 🌱 I’m currently learning too much for my brain to comprehend 
--
 - 💞️ I’m looking to collaborate on required class projects with my classmate homies
 
 <!---
